@@ -2,6 +2,7 @@
 # **Jour 1 - Congé scientifique (01.08.2022)**
 
 **Voilà. C’est parti. Ce premier août 2022, plus que la Fête nationale suisse, marque le premier jour de mon congé scientifique d’une durée de 6 mois. Il prendra officiellement fin le 31 janvier 2023.**
+
 ![HipstamaticPhoto-678368447.815339](https://i.imgur.com/mgYBwR9.jpg)
 ------------------------
 Durant ces six mois, je démarre un projet de recherche sur la communauté scientifique des didacticien•nes de l’histoire du Canada, de France, de Belgique et de Suisse.
